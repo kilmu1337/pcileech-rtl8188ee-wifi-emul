@@ -8,7 +8,7 @@ https://www.unknowncheats.me/forum/anti-cheat-bypass/654112-pcileech-rtl8188ee-w
 
 @credit  
 
-@kilmu1337 Discord id: **kilmu1337** / Channel Link:[https://discord.gg/sXeTPJfpaN](https://discord.gg/sXeTPJfpaN)  
+@kilmu1337 Discord id: **kilmu1337** / Channel Link:[https://discord.gg/KilmuDMA](https://discord.gg/KilmuDMA)  
 
 @AceKingSuited     Discord id: **ace_king_suited** / Channel Link: [https://discord.gg/sXeTPJfpaN](https://discord.gg/E32e7Yca)
 
